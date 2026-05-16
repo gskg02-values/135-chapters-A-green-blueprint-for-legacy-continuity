@@ -1,4 +1,4 @@
-# 🌿 Nature Kural: 135 Chapters — A Green Blueprint for Legacy & Continuity
+# 🌿 135 Chapters — A Green Blueprint for Legacy & Continuity
 
 > *"Nature does not Write History; It Exhibits Survival. Legacy is an Ancient Pulse; A Billion-Year Victory etched in Silence."*
 
